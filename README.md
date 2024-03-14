@@ -9,5 +9,5 @@
 <br><br><b>► i hide freely.</b> if you're weird/annoying you're gone
 <br><br>not ok with c+h unless we're friends or asked,
 <br><b>not a td/tt - just awkward for me, </b>
-<br><br><img src="https://media.discordapp.net/attachments/903364339464044575/1101871119583154217/EFB9C0AA-C657-4BC0-A5E6-DB1810082D69.gif" width="400px">
+<br><br><img src="https://imgur.com/yeT9bAe" width="400px">
 </p>

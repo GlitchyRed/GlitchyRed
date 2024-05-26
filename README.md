@@ -8,6 +8,8 @@
 <br><br><b>► i hide freely.</b> if you're weird/annoying you're gone
 <br>not ok with c+h unless we're friends or asked,
 <br><b>not a td/tt - just awkward for me </b><br><br>► <a href="https://retrospring.net/@gliitchyred">RETROSPRING</a> replacement for GB, say hi!
-<br>► <a href="https://cutevampires.123guestbook.com">GUESTBOOK</a> sign it before it goes
+<br>► <a href="https://cutevampires.123guestbook.com">GUESTBOOK</a> sign it before it goes<br><br>
+they put me in a <a href="https://rentry.co/github-tierlist">tierlist</a> >_0<br>
+lmk what kinda tierlist this is and why am i normal
 <br><br><img src="https://i.imgur.com/yeT9bAe.gif" width="400px">
 </p>

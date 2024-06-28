@@ -7,7 +7,8 @@
 <br><b>inspo is fine</b>, just don't impersonate me
 <br><br><b>► i hide freely.</b> if you're weird/annoying you're gone
 <br>not ok with c+h unless we're friends or asked,
-<br><b>not a td/tt - just awkward for me </b><br><br>► <a href="https://retrospring.net/@gliitchyred">RETROSPRING</a> replacement for GB, say hi!
-<br>
+<br><b>not a td/tt - just awkward for me </b><br>
+  <br>► <a href="https://retrospring.net/@gliitchyred">RETROSPRING</a> replacement for GB, say hi!<br>
+  ► <a href="https://cutevampires.atabook.org/?page=1">ATABOOK</a> 2nd replacement<br>
 <br><img src="https://i.imgur.com/yeT9bAe.gif" width="400px">
 </p>

@@ -1,5 +1,5 @@
 
-<img src="https://i.imgur.com/TIo6aKb.png" align="left" style="width: 570px;">
+<img src="https://i.imgur.com/TIo6aKb.png" align="left" style="width: 500px;">
 <br><br>
 <p align="center">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cf79e087-c4e0-406e-8eed-fc62e1142056/dbq2um9-50a1df14-7dcd-47d7-a916-740cf6488752.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2NmNzllMDg3LWM0ZTAtNDA2ZS04ZWVkLWZjNjJlMTE0MjA1NlwvZGJxMnVtOS01MGExZGYxNC03ZGNkLTQ3ZDctYTkxNi03NDBjZjY0ODg3NTIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.qNbYdf4SZRR4nelcBmaYf0eWzaEiwi8ZTU6xAsHk18o">

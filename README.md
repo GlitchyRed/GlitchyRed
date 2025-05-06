@@ -1,14 +1,16 @@
+
+<img src="https://i.imgur.com/TIo6aKb.png" align="left" style="width: 570px;">
+<br><br>
 <p align="center">
-<img src="https://i.imgur.com/TIo6aKb.png" width="520px">
-<br><br><b>► vash</b>/glitchy (<a href="https://en.pronouns.page/@Humanoid.Typhoon">+</a>) <img src="https://i.imgur.com/c5kHAAo.png" height="16px"> <img src="https://i.imgur.com/ZcBbkga.png" height="16px"> <img src="https://i.imgur.com/p3rYitx.png" height="16px"> <img src="https://i.imgur.com/hyf2v4w.png" height="16px"> they/it ; 18
-<br><a href="https://vashstampede.straw.page">more about me</a> ― <a href=https://mxghoesting.straw.page>commission me!</a><br>
-<br><b>► whisper to interact</b>, i'm offtab a lot. i'm not very talkative 
-<br>i don't int first, but i am friendly
-<br><b>inspo is fine</b>, just don't impersonate me
-<br><br><b>► i hide freely.</b> if you're weird/annoying you're gone
-<br>not ok with c+h unless we're friends or asked,
-<br><b>not a td/tt - just awkward for me </b><br>
-  <br>► <a href="https://retrospring.net/@gliitchyred">RETROSPRING</a> replacement for GB, say hi!<br>
-  ► <a href="https://cutevampires.atabook.org/?page=1">ATABOOK</a> 2nd replacement<br>
-<br><img src="https://i.imgur.com/yeT9bAe.gif" width="400px">
-</p>
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cf79e087-c4e0-406e-8eed-fc62e1142056/dbq2um9-50a1df14-7dcd-47d7-a916-740cf6488752.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2NmNzllMDg3LWM0ZTAtNDA2ZS04ZWVkLWZjNjJlMTE0MjA1NlwvZGJxMnVtOS01MGExZGYxNC03ZGNkLTQ3ZDctYTkxNi03NDBjZjY0ODg3NTIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.qNbYdf4SZRR4nelcBmaYf0eWzaEiwi8ZTU6xAsHk18o">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/1f37706a-5c4f-46c6-af5d-61c5b1849747/dhx1a3g-8d3a96d6-dcd3-48c8-91bd-652a2b4dff43.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzFmMzc3MDZhLTVjNGYtNDZjNi1hZjVkLTYxYzViMTg0OTc0N1wvZGh4MWEzZy04ZDNhOTZkNi1kY2QzLTQ4YzgtOTFiZC02NTJhMmI0ZGZmNDMuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.xL9d-rCFqGxB66Z-S8QVZ_4XrLVVhcPrOvELSz2jJAQ">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6014a2b2-2904-465c-b884-ef106e4a5eee/d777f4i-c9dc9e7a-75b4-442e-a8b6-a8eff18bc2bb.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzYwMTRhMmIyLTI5MDQtNDY1Yy1iODg0LWVmMTA2ZTRhNWVlZVwvZDc3N2Y0aS1jOWRjOWU3YS03NWI0LTQ0MmUtYThiNi1hOGVmZjE4YmMyYmIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ROV61I6pPEfElb_HFgLegMh8mlbcOPVGjG37M39NnGQ"</p> 
+  <h3 align="center">cathy || vash ✦ they/it ✦ 19</h3>
+<p><b>i'm not the most social person, especially with one on one conversations. i don't int first, but i am friendly</b>. i also hide freely, if you annoy me in any way or if you're just weird.</p>
+
+<p>I don't get on as much as i use to, but if you care, <b>my interests are Guilty gear, trigun, chiikawa, whatever else at the moment</b></p>
+
+<p align="center">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5b5712f7-803b-4b98-ba97-749f1a107087/d9ebfzz-59b93724-74de-41ed-b85d-bcf0ab6016fa.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzViNTcxMmY3LTgwM2ItNGI5OC1iYTk3LTc0OWYxYTEwNzA4N1wvZDllYmZ6ei01OWI5MzcyNC03NGRlLTQxZWQtYjg1ZC1iY2YwYWI2MDE2ZmEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.esrsArATKDJoejkx-OCqVZeyEFevZxALJ7Hm0uHuY-A"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0770f9ec-ed13-4241-a92d-b57b1228495c/d3llgm8-ff8556c3-eff9-4b77-83f9-f3ddba5432e8.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzA3NzBmOWVjLWVkMTMtNDI0MS1hOTJkLWI1N2IxMjI4NDk1Y1wvZDNsbGdtOC1mZjg1NTZjMy1lZmY5LTRiNzctODNmOS1mM2RkYmE1NDMyZTgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.tpZYTthag4TFbDaz_8-foGNaQLHM43shV_ZVb01KqCY">
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f4a85c5a-44f5-4bb6-bbe2-28f8c64534cc/dc2brbx-25957afe-fa69-49e4-9fae-f4a04283e1d4.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y0YTg1YzVhLTQ0ZjUtNGJiNi1iYmUyLTI4ZjhjNjQ1MzRjY1wvZGMyYnJieC0yNTk1N2FmZS1mYTY5LTQ5ZTQtOWZhZS1mNGEwNDI4M2UxZDQucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Ebzo8dP12vGQA6kTIfJcCgGR_B128UoY7KczkM5K3Ac"></p>
+<p align="center"><sup>Say something to me -> <a href="https://cutevampires.atabook.org/">atabook</a></sup></p> <align="center">
